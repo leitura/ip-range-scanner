@@ -6,4 +6,4 @@ https://t.me/EhisOpeNer
 
 Como instalar:
 
-https://t.me/EhisOpeNer
+https://t.me/EhisOpeNer/17966
